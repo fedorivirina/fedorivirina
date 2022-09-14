@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fedorivirina
+- 👀 I’m interested in graphic design
+- 🌱 I’m currently learning UI/Ux design
+- 💞️ I’m looking to collaborate on graphic design work
+- 📫 How to reach me fedorivirina2@gmail.com
